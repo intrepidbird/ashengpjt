@@ -6,7 +6,7 @@ Princeton Junior Tigers #12
 
 Mercer Chiefs #8
 
-Ice Hockey
+Ice Hockey for PHS
 
 **https://princetonjuniortigers.com**
 
