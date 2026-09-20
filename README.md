@@ -4,6 +4,8 @@ Princeton High School #11 #48
 
 Princeton Junior Tigers #12
 
+Mercer Chiefs #8
+
 Ice Hockey
 
 https://princetonjuniortigers.com
